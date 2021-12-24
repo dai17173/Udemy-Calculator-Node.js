@@ -1,1 +1,1 @@
-Practise 6
+Practice 6
